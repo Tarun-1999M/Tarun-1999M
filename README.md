@@ -24,7 +24,7 @@ Here are some ideas to get you started:
 
 
 
-- Don't be shy, ping me @ venkatasaitarunmunduri@gmail.com
+- Don't be shy, ping me @ venkata.m@cvmailhub.com
 
 
 
